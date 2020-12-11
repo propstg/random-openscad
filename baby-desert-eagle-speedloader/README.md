@@ -1,0 +1,1 @@
+Printed on its top with no supports. Should be compatible with Jericho 941 9mm magazines, as well.
